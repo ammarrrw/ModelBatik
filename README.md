@@ -1,1 +1,1 @@
-Ini adalah model batik pertama
+Beberapa hasil model
